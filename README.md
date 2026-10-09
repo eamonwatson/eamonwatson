@@ -1,3 +1,2 @@
-Designer & Full Stack Developer
+Hardware & Software Engineer
 -------------------------------
-I create many different types of projects that help others!
